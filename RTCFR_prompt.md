@@ -177,6 +177,7 @@ Candlelight dinner
 Private stay
 
 Report / Tone:
+
 Friendly and conversational
 Well-structured with headings and bullet points
 Clear and easy to understand
